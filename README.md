@@ -51,7 +51,7 @@
 ---
 
 ## 📫 Connect with Me
-- 📧 Email: ketkanda.s@example.com  
+- 📧 Email: ketkanda4570@gmail.com  
 - 💼 LinkedIn: [linkedin.com/in/creamlock](https://linkedin.com/in/creamlock)  
 - 🐦 Twitter (X): [twitter.com/creamlock](https://twitter.com/creamlock)  
 
